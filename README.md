@@ -4,8 +4,8 @@
 
 ## Developer
 
-- **Instagram**: [@vynaa_valerie](https://instagram.com/rannzxyyy_)
-- **WhatsApp**: [Message Vynaa Valerie](https://wa.me/message/FOKEDL2PN6D4A1)
+- **Instagram**: [@rannzxyyy_](https://instagram.com/rannzxyyy_)
+- **WhatsApp**: [Message Ranzz](https://wa.me/message/FOKEDL2PN6D4A1)
 
 ## Donasi
 
