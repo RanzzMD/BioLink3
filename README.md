@@ -4,18 +4,18 @@
 
 ## Developer
 
-- **Instagram**: [@vynaa_valerie](https://instagram.com/vynaa_valerie)
-- **WhatsApp**: [Message Vynaa Valerie](https://wa.me/message/2MOJNXNC45Y5E1)
+- **Instagram**: [@vynaa_valerie](https://instagram.com/rannzxyyy_)
+- **WhatsApp**: [Message Vynaa Valerie](https://wa.me/message/FOKEDL2PN6D4A1)
 
 ## Donasi
 
-- [Saweria](https://saweria.co/vynaabot)
+- [Saweria](https://saweria.co/Rannzxyyy)
 
 ---
 
 ### Tentang Website
 
-Proyek ini adalah halaman profil untuk Vynaa Valerie, seorang pengembang dan kreator konten. Halaman ini menampilkan informasi kontak utama dan tautan donasi untuk mendukung proyek.
+Proyek ini adalah halaman profil untuk Ranzz, seorang pengembang dan kreator konten. Halaman ini menampilkan informasi kontak utama dan tautan donasi untuk mendukung proyek.
 
 ### Cara Setting
 
@@ -26,4 +26,4 @@ Proyek ini adalah halaman profil untuk Vynaa Valerie, seorang pengembang dan kre
 
 ### Credits
 
-© Recode by Vynaa Valerie
+© Recode by Ranzz
